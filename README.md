@@ -1,2 +1,0 @@
-# AdvaitaMehrotra.github.io
- 
